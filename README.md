@@ -1,0 +1,1 @@
+# shotaking61718-site
